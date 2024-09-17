@@ -1,0 +1,1 @@
+# carregador-sem-Fio-20W-com-suporte
